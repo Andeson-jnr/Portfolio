@@ -1,0 +1,1 @@
+a protfolio created by Thaddeus Ande as part of practice to my tech journey
